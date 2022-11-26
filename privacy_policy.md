@@ -53,4 +53,4 @@ This policy is effective as of 2022-11-19
 
 **Contact Us**
 
-If you have any questions or suggestions about [my/our] Privacy Policy, do not hesitate to contact [me/us] at r9n9ga7@mail.ru.
+If you have any questions or suggestions about [my/our] Privacy Policy, do not hesitate to contact [me/us] at renegatetm@gmail.com.
